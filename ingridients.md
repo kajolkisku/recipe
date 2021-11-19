@@ -1,0 +1,1 @@
+rice,uradah dal
